@@ -1,1 +1,0 @@
-# skotarskikacper.github.io
